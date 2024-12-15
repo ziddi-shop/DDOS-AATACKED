@@ -1,4 +1,4 @@
-**Translation: DDoS Attack Tool 😈⚡️**
+**Tool: DDoS Attack  😈⚡️**
 
 The tool attacks websites randomly and violently 🔥
 
